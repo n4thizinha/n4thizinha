@@ -6,7 +6,7 @@
 - 😄 Pronouns: ela/ele
 - ⚡ Fun fact: gosto de cubos mágicos
 
-![](https://media.tenor.com/Z1eYI2fogxAAAAAM/pom-pom-purin.gif)
+![](https://media.tenor.com/n-nlbfgm5ccAAAAj/pom-pom-purin.gif)
 
 <!---
 n4thizinha/n4thizinha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
