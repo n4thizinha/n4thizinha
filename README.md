@@ -1,10 +1,10 @@
 - 👋 oi, meu nome é nathalia
-- 👀 gosto de cubos mágicos 
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 👀 gosto de matemática
+- 🌱 atualmente estou aprendendo progamação
+- 💞️ procuro nada não
+- 📫 (12)99110-2187
+- 😄 Pronouns: ela/ele
+- ⚡ Fun fact: gosto de cubos mágicos
 
 ![](https://media.tenor.com/Z1eYI2fogxAAAAAM/pom-pom-purin.gif)
 
