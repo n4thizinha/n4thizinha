@@ -3,8 +3,8 @@
 - 🌱 atualmente estou aprendendo progamação
 - 💞️ procuro nada não
 - 📫 (12)99110-2187
-- 😄 Pronomes: ela/ele
-- ⚡ oq eu amo: gosto de cubos mágicos
+- 😄 pronomes: ela/ele
+- ⚡ o que eu amo: gosto de cubos mágicos
 
 ![](https://media.tenor.com/n-nlbfgm5ccAAAAj/pom-pom-purin.gif)
 
