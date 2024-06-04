@@ -7,6 +7,7 @@
 - ⚡ o que eu amo: gosto de cubos mágicos
 
 ![](https://media.tenor.com/n-nlbfgm5ccAAAAj/pom-pom-purin.gif)
+![](https://media.tenor.com/4_DD-CnYHJgAAAAj/flowers.gif)
 ![](https://media.tenor.com/XxuQQkn-AhQAAAAM/lesbian-lesbian-flag.gif)
 ![](https://media.tenor.com/OKLPJFCyo-4AAAAM/the-simpsons-homer-simpson.gif)
 
